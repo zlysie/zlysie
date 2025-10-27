@@ -4,5 +4,4 @@
 I make dumb things like Old Roblox nonsense, games and websites!!!!
 
 ## Stuff I work on
-- [Brickline](http://brickline.blackspace.lol:45689/) (Developer)
-- [Gamma](http://gamma.lambda.cam) (Solo Project)
+- Nothing. I'm gone from here.
